@@ -40,7 +40,6 @@ Faites si vous pouvez votre cour sans vous nuire.
 
 
 Où l’on ne se pardonne rien.
-tu coules 
-tu recoule
+
 
 et non :)
