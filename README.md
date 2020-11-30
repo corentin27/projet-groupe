@@ -1,3 +1,6 @@
+
+
+
 **Fable de la fontaîne**
 
 
@@ -42,4 +45,5 @@ Faites si vous pouvez votre cour sans vous nuire.
 Où l’on ne se pardonne rien.
 
 
+fumante ; S’il vous plaît, de robe de chambre. Et de sa peau s’enveloppa ; Les daubeurs ont leur tour, d’une ou d’autre manière :
 et non :)
